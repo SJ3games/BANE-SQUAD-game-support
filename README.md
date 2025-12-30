@@ -1,1 +1,1 @@
-Bane-Fall report issues in Discussions
+Bane-Squad report issues in Discussions
